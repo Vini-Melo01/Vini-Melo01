@@ -1,2 +1,2 @@
 Not a man, not a child, a businnes penguin
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/XVmB5sN/Ef5-HUx5-H-400x400.jpg" alt="Ef5-HUx5-H-400x400" border="0"></a><br /><a target='_blank' href='https://pt-br.imgbb.com/'></a><br />
+<div class="tenor-gif-embed" data-postid="5598723" data-share-method="host" data-width="100%" data-aspect-ratio="1.7913669064748199"><a href="https://tenor.com/view/business-gif-5598723">Business Penguin GIF</a> from <a href="https://tenor.com/search/business-gifs">Business GIFs</a></div><script type="text/javascript" async src="https://tenor.com/embed.js"></script>
