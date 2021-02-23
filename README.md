@@ -1,2 +1,2 @@
-Not a man, not a child, a businnes penguin
+Not a man, not a child, a business penguin
 
